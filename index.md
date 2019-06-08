@@ -1,4 +1,4 @@
-Welcome to 52kanbi.com Url Release Pages
+Welcome to 77se Url Release Pages
 You can use the link on this page to securely access our website.
 
 Open this page whenever you can't find our URL.
